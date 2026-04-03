@@ -2,7 +2,7 @@
 
 <div align=center>
 
-<img src=https://files.catbox.moe/l0qu4i.png width=340>
+<img src=https://files.catbox.moe/7rui95.png width=340>
 
 $${\color{#e5e8a2}rei/drea}$$
 
