@@ -5,5 +5,6 @@
 
 ˚ʚ [rentry](https://rentry.co/ryu_suu) ♡ [ata](https://chickenbootyweezer.atabook.org/) ♡ [guns](https://guns.lol/mewtuna) ♡ [intro](https://github.com/mewtuna/aaa/blob/main/README.md) ɞ˚<br>
 ‎‎ <br>
-![](https://komarev.com/ghpvc/?username=mewtuna&base=4644&color=f3c2ad&style=for-the-badge&label=amo's+cuties)
+![](https://komarev.com/ghpvc/?username=mewtuna&base=4644&color=f3c2ad&style=for-the-badge&label=amo's+cuties) <br>
+<sub> [intro](https://github.com/mewtuna/intt) , this github is mainly for Ponytown ^^
 <img src=https://files.catbox.moe/6kmtgf.jpg> <br>
