@@ -11,6 +11,6 @@
 
 </div>
 
-$${\color{#f3c2ad}sources}$$ :  [![amolayout](https://files.catbox.moe/3lv473.webp)](https://www.tumblr.com/bpdspain/808857405434757120/amo-empool-tumblr-layout-%F0%96%A1%BB)
+$${\color{#f3c2ad}sources}$$ : [![amolayout](https://files.catbox.moe/3lv473.webp)](https://www.tumblr.com/bpdspain/808857405434757120/amo-empool-tumblr-layout-%F0%96%A1%BB) <img src=https://files.catbox.moe/70rnun.png align=right width=150>
 [![divider](https://files.catbox.moe/3lv473.webp)](https://www.tumblr.com/kodaswrld/760757031909146624/lace-dividers)
-[![pixels](https://files.catbox.moe/3lv473.webp)](https://www.tumblr.com/kodaswrld/760757031909146624/lace-dividers)　　  <img src=https://files.catbox.moe/70rnun.png align=right width=150>
+[![pixels](https://files.catbox.moe/3lv473.webp)](https://www.tumblr.com/kodaswrld/760757031909146624/lace-dividers)　　  
