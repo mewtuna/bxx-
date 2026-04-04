@@ -15,4 +15,4 @@
 $${\color{#f3c2ad}sources}$$ : [![amolayout](https://files.catbox.moe/6tizr8.webp)](https://www.tumblr.com/bpdspain/808857405434757120/amo-empool-tumblr-layout-%F0%96%A1%BB) 
 [![divider](https://files.catbox.moe/6tizr8.webp)](https://www.tumblr.com/kodaswrld/760757031909146624/lace-dividers)
 [![pixels](https://files.catbox.moe/6tizr8.webp)](https://www.tumblr.com/bugsdeco/808939300428316672/pink-blue-summer-themed-pixels-or-a-batch-for)　　  <br>
-<img src=https://files.catbox.moe/zxa0jk.webp width=1000> 
+
