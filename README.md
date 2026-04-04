@@ -6,7 +6,7 @@
 ˚ʚ [rentry](https://rentry.co/ryu_suu) ♡ [ata](https://chickenbootyweezer.atabook.org/) ♡ [guns](https://guns.lol/mewtuna) ♡ [strawpage](https://pinkbxxtch.straw.page/) ɞ˚<br>
 ‎‎ <br>
 ![](https://komarev.com/ghpvc/?username=mewtuna&base=4644&color=f3c2ad&style=for-the-badge&label=amo's+playmates+!) <br>
-<sub> [intro](https://github.com/mewtuna/intt) , this github is mainly for Ponytown ^^
+<sub>‎  [intro](https://github.com/mewtuna/intt) , this github is mainly for Ponytown ^^
 <img src=https://files.catbox.moe/6kmtgf.jpg> <br>
 
  </div>
