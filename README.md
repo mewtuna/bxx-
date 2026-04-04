@@ -2,6 +2,7 @@
   <img src=https://files.catbox.moe/4ecvx1.jpg> <br>
 <img src=https://i.ibb.co/hRWJMzyC/tumblr-ee80a76af6a62b7c6b72131f63ffc1f2-246b3e3d-1280.png width=450> <br>
 <img src=https://files.catbox.moe/4ecvx1.jpg width=320> <br>
+<img src=https://files.catbox.moe/zxa0jk.webp width=350> <br>
 
 ˚ʚ [rentry](https://rentry.co/ryu_suu) ♡ [ata](https://chickenbootyweezer.atabook.org/) ♡ [guns](https://guns.lol/mewtuna) ♡ [strawpage](https://pinkbxxtch.straw.page/) ɞ˚<br>
 ‎‎ <br>
